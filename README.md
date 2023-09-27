@@ -1,1 +1,2 @@
 # my-first-repo
+Hey, I'm Jumaane (Juju) Royster! I'm from Brooklyn, New York. I am now a Fall 23' Fellow and I love anime and video games! Particularly One Piece, Super Smash Bros, Brawlhalla and any FPS/TPS (First/Third Person Shooter). 
